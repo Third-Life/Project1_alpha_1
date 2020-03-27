@@ -1,2 +1,2 @@
 "# Project1_alpha_1" 
-I'm a homosexual
+Aryaman is not a homosexual
